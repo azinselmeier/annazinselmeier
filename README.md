@@ -1,3 +1,3 @@
 # Anna Zinselmeier
-Alt-H1
-Repository for my Github account
+Fourth-Year student at The University of Iowa majoring in Marketing and Business Analytics
+Pronouns: She/her/hers
